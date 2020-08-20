@@ -1,0 +1,2 @@
+# FRESHERS-SOLUTION-SYNPOSIS
+Project Synposis
